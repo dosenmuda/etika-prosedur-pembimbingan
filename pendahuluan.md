@@ -1,2 +1,8 @@
 # Pendahuluan
 
+RANCANGAN BUKU PERSEMBAHAN IDRI;
+
+Selama ini mahasiswa (S1, S2, dan S3) selalu dianjurkan untuk memiliki dan membaca buku Panduan atau Pedoman Penulisan Skripsi, Tesis, dan Disertasi. Buku tersebut wajib digunakan oleh mahasiswa sebagai guidance dlm penyusunan Skripsi, Tesis, dan Disertasi. Namun pada satu sisi, pembimbing jarang yang mematuhi sistematika yg ada dlm buku pedoman. Alhasil, mhs dbuat bingung. Kontradiktif antara pembimbing (promotor dan co promotor) dgn segala ego akdemiknya menimbulkan persoalan tersendiri pd diri yg dibimbing. Buku ini sedang saya tulis sebagai upaya untuk menyamakan persepsi bhw membimbing itu adalah proses utk mengarahkan, bukan memaksa sebuah konsep/ide pembimbing. Membimbing harus didasarkan pada kesiapan dan kesanggupan mhs bukan membandingkan dgn kompetensi pembimbing.
+
+Namun, dalam perjalanannya sy belum sanggup meng-eksplor berbagai fenomena yg dialami oleh para mhs dlm proses pembimbingannya. Suka dan duka mereka ingin saya jadikan sebuah referensi untuk perbaikan proses pembimbingan. Dalam hal ini, kontribusi teman2 yg tergabung dlm IDRI utk memberikan kontribusi pada pemerintah (kemenristek-dikti) melalui buku ini agar dpt menetapkan standar etika dan prosedur dalam pembibingan. Kontribusi bisa dalam bentuk testimoni perjalanan proses pembimbingan. DOSEN, bisa berada dalam posisi sebagai pelaku (krn ikut membimbing) dan bisa juga sebagai korban (status sbg mhs)
+BUKU ini barangkali bisa menjadi bentuk kontribusi anggota IDRI terhadap perkembangan pendidikan di tanah air. Butuh diskusi bersama utk bisa merumuskan semua itu….(ini hanya sebuah rancangan yg sdh saya mulai menulisnya). siapa mau gabung??
